@@ -1,0 +1,1 @@
+This dish, also known as a bombe, is a classic french ice cream desert dish, frozen into a spherical mound of icecream covered cake with a flambeed whipped cream topping.
